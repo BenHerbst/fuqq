@@ -1,4 +1,4 @@
-# fuqq
+# FUQQ
 FUQQ - Fuqqing unreal qool qode
 
 The best programming community that is actual fun! 🛫🛫🛫
